@@ -1,4 +1,4 @@
-Pão de Queijo - Angelina
+Pão de Queijo
 ========================
 
 Ingredientes
@@ -7,7 +7,7 @@ Ingredientes
  * 1 kg de polvilho.
  * 2 copos e meio de água para sovar.
  * 1 colher cheia de sopa para 2 kg de polvilho.
- * 3 copos americanos de leite. Se ficar duro pôe mais.
+ * 3 copos americanos de leite. Se ficar duro põe mais.
  * 1 copo e meio de óleo (copo americano).
  * 1 mão de farinha de milho (se não tiver, não tem problema).
  * 3 ovos
