@@ -5,10 +5,10 @@ Ingredientes
 ------------
 
  * 1 kg de polvilho.
- * 2 copos e meio de água para sovar.
- * 1 colher cheia de sopa para 2 kg de polvilho.
- * 3 copos americanos de leite. Se ficar duro põe mais.
- * 1 copo e meio de óleo (copo americano).
+ * 430 ml copos e meio de água para sovar.
+ * 1 colher cheia (de sopa) de sal para 2 kg de polvilho.
+ * 350 ml copos americanos de leite. Se ficar duro põe mais.
+ * 130 ml de óleo.
  * 1 mão de farinha de milho (se não tiver, não tem problema).
  * 3 ovos
  * Queijo a gosto
